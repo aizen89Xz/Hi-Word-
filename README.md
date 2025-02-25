@@ -1,2 +1,2 @@
 # Hi-Word-
-Practica de GitHub
+Entuciasta en la ciber seguridad
